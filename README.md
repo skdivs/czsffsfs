@@ -1,1 +1,1 @@
-Welcome to chimpies have fun till the next update as this is a new game with its new release
+Hi beta testers! have fun here, Please report any bugs that you may encounter
